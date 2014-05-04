@@ -4,4 +4,4 @@ Team Andromedus
 
 Alexis Hoshino, Eric Tian, HQ Pham-Nguyen, Kathleen Enverga
 
-Our team met up at University Tower Center at 10:00am on Friday 4/11 for a light brunch and some bonding time. We got to know each a little better from just hanging out, eating and talking together for nearly 2 hours until we had to go to work/class.
+Our team met up at the University Town Center at 10:00am on Friday, April 11th for a light brunch and some bonding time. We got to know each other a little better from just hanging out, eating, and talking together for nearly two hours until we had to go to work/class.
